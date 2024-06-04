@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Nicolas Nobre 😁
+## Bem-vindo(a) ao perfil do Nicolas 🕺
 
  <div>
    <a href="https://github.com/NicolasNobre2002">
